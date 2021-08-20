@@ -1,1 +1,1 @@
-# SafeCrypto-Token-
+# SafeCrypto-Token-SafeCrypto is  "Hyper Deflationary"  Community Powered Crypto Awareness & Educational Cryptocurrency Token Based On Binance Smart Chain Aims to Reduce scams in crypto world . SafeCrypto want to build a safe crypto environment for new investors with knowledge & awareness.
